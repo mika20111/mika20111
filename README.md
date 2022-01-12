@@ -1,10 +1,5 @@
-- 👋 Hi, I’m @mika20111
-- 👀 I’m interested in web-sites
-- 🌱 I’m currently learning in HEDEF LISEYI
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me mikailgasymov74@gmail.com
-
-<!---
-mika20111/mika20111 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Я Мика•😽😽😽😽😽😽😽😽😽😽😽😽😽😽😽😽😺😺😺😺😺😺😺😺😺😺😺😺😺😺😺😺😺😺😺😺😺😸😸😸😸😸😸😸😸😸🙀🙀🙀🙀🙀🙀🙀🙀🙀🙀🐱‍💻🐱‍💻🐱‍💻🐱‍💻🐱‍💻🐱‍💻🐱‍💻🐱‍💻🐱‍💻🐱‍💻👾👾
+Я люблю спать и кушать, а потом ещё 5 раз спать•😑😑😑😑😑😑😑😑😶😑😑😑😑😶😑😑😑😑😶😑😶😶😶😑😶😶😶😶😶😶😶😶😶😑😑😑😑😑😑😑😑😑😶😑😑😶😶😶😶😶�🎐
+Я интересуюсь веб-бизнесом•🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤯🤯🤯🤯🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑💵
+Когда я вырасту, я буду работать один, из дома. А потом стану котёнком•🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠🤠�🤠�
+Программа создана на сайте «я-енот.рф»  ©2022 Все права онулированы.
